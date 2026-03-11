@@ -5,4 +5,9 @@
 - Grandma: Ana "White Ferns Supporter" Williams (Wellington)
 
 ## Family Traditions
-- Weekend BBQs watching the All Blacks
+
+- Weekend BBQs watching the All Blacks and cricket matches
+
+##Children
+- Son: Mike "Black Caps & Warriors Fan" Williams (lives in Christchurch)
+Update Family Traditions to:
