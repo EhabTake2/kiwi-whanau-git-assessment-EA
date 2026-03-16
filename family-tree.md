@@ -8,6 +8,7 @@
 
 - Weekend BBQs watching the All Blacks and cricket matches
 
-##Children
+## Children
 - Son: Mike "Black Caps & Warriors Fan" Williams (lives in Christchurch)
-Update Family Traditions to:
+- Grandson: Liam (12, future All Black, Christchurch)
+- Granddaughter: Mia (8, White Ferns fanatic)
