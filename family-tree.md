@@ -6,10 +6,11 @@
 
 ## Family Traditions
 
-- Weekend BBQs watching the All Blacks and cricket matches UFC and UFC fights.
+- Weekend BBQs watching the All Blacks, White Ferns, Black Caps, Warriors NRL, UFC and UFC fights.
 
 ## Children
 - Son: Mike "Black Caps & Warriors Fan" Williams (lives in Christchurch)
 Daughter: Sarah "UFC Fan" Williams (lives in Queenstown, Israel Adesanya supporter)
+Son: Rangi "Black Ferns & All Blacks Diehard" Williams (lives in Dunedin)
 - Grandson: Liam (12, future All Black, Christchurch)
 - Granddaughter: Mia (8, White Ferns fanatic)
